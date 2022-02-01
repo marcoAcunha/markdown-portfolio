@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+## this is a list of the most not pogchamp alergies ever
+- penuts
+- shelfish
+- water
+- me
